@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Coding
 - 🌱 I’m currently learning ... C++ , python and AI &ML
 - 💞️ I’m looking to collaborate on ... top companies
-- 📫 How to reach me ... at on good postion
+- 📫 How to reach me ... in a good company
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
